@@ -11,3 +11,5 @@ Hägar gilt als gefürchteter Eroberer, zeigt sich zuhause aber als treusorgende
 
 Wie Hägar sagt: 
 > Prost!
+
+<img src="https://ferneding.eu/fotos/ferneding_eu.jpg"/>
