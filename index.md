@@ -10,4 +10,5 @@ Er ist der Anführer einer Gruppe von Wikingern, die sich regelmäßig auf Erobe
 (Quelle: https://de.wikipedia.org/wiki/H%C3%A4gar_der_Schreckliche)
 
 
-Zitat: > Prost!
+Wie Hägar sagt: 
+> Prost!
